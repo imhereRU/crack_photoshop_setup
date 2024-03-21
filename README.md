@@ -1,0 +1,1 @@
+# crack_photoshop_setup
